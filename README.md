@@ -1,0 +1,1 @@
+Bui et al. (2023, J. Climate): Responses of the Madden-Julian oscillation to global warming: impacts from tropical SST changes. PDF and supplementary: https://drive.google.com/drive/folders/11YSwrBD_ptvTu4GFWCuYpnbOBtuN3GGj?usp=sharing 
